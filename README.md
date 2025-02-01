@@ -17,4 +17,4 @@
 
 ### 2. Hình ảnh
 
-![image](https://github.com/user-attachments/assets/8c1d7d52-1a98-4eb9-872c-7849d67e411e)
+![image](https://github.com/user-attachments/assets/42919dab-2485-4416-9f35-32bd308651a5)
